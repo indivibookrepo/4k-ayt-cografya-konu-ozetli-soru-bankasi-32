@@ -1,0 +1,1 @@
+# 4k-ayt-cografya-konu-ozetli-soru-bankasi-32
